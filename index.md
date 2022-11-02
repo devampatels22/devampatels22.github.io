@@ -5,7 +5,8 @@ pateld6@myumanitoba.ca
 
 ## **Career Focus**
 ---------------------------
-> Responsible for tasks, well organized with excellent communication and public speaking skills.
+> Responsible for tasks. 
+> Well organized with excellent communication and public speaking skills.
 > Ability to understand concepts concisely.
 
 ## **Technical Skills**

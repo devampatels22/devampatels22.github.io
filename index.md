@@ -31,32 +31,26 @@ pateld6@myumanitoba.ca
 #### **Supervisor: Subway -- Arborg, MB** 
 > *August 2019 -- Present*
 
--   Monitor food distribution, ensuring that meals are delivered to the
-    correct recipients and that guidelines, such as those for special
-    diets, are followed.
--   Clean or sterilize dishes, kitchen utensils, equipment, or
-    facilities.
+-   Monitor food distribution, ensuring that meals are delivered to the correct recipients and that guidelines, such as those for special diets, are met.
+-   Clean or sterilize dishes, kitchen utensils, equipment, or facilities.
 -   Prepare food items, such as sandwiches, salads, soups, or beverages.
--   Monitor food preparation or serving techniques to ensure that proper
-    procedures are followed.
--   Total checks present them to customers, and accept payment for
-    services
+-   Monitor food preparation or serving techniques to ensure that proper procedures are followed.
+-   Accept payment for services.
 
 #### **Fun Park Amusement Center -- Winnipeg, MB** 
 > *June 2018 -- December 2018*
 
--   Monitoring kids and youths playing on trampolines. Ensuring kids are
-    safe while enjoying with their family.
+-   Monitoring kids and youths playing on trampolines. 
+-   Ensuring kids are safe while enjoying with their family.
 -   Harnessing kids and assisting them with rock climbing activity.
 -   Prepare food services such as pizzas, fries, burgers or beverages.
 
 #### **Cashier: Home Depot -- Winnipeg, MB** 
 > *March 2019 -- August 2019*
 
--   Greet customers and ring up items on the till of which, customer has
-    bought.
--   Create, maintain and establish a positive relationship. Ensuring
-    customer exits the store with a positive attitude.
+-   Greet customers and ring up items on the till of which customer's have purchased.
+-   Create, maintain and establish a positive relationship. 
+-   Ensure customer exits the store with a positive attitude.
 -   Assisting customers with heavy items or item lookups.
 -   Complete any forums in accordance with company procedures.
 
@@ -65,9 +59,8 @@ pateld6@myumanitoba.ca
 #### **199 Royal Canadian Air Cadet Squadron:** 
 > *September 2013 - June 2019*
 
--   Graduated with a Rank Warrant Officer 2nd class Patel Devam. 7 years
-    of outstanding leadership and public speaking skill experience from
-    cadets.
+-   Graduated with a Rank Warrant Officer 2nd class Patel Devam. 
+-   7 years of outstanding leadership and public speaking skill experience from cadets.
 
 #### **Languages**
 
@@ -77,13 +70,10 @@ pateld6@myumanitoba.ca
 
 #### **Certifications**
 
-- Air cadet league of Canada Graduation certificate. (2019)
--  Air cadet league of Canada Certification of Rank Warrant officer 2^nd^
-class (2018)
--  Cadet's certificate of Qualification Fitness and sport Instructor.
-(2017)
-
-- High School Diploma. (2018)
+- Air cadet league of Canada Graduation certificate.
+- Air cadet league of Canada Certification of Rank Warrant officer 2^nd class.
+- Cadet's certificate of Qualification Fitness and sport Instructor.
+- High School Diploma.
 
 #### **References**
 

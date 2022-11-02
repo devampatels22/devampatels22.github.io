@@ -11,7 +11,9 @@ pateld6@myumanitoba.ca
 ## **Technical Skills**
 ---------------------------
 **Programming Language:** Java, C++ , C , Python, Sql , Assembly, Javascript
+
 **Tools & Technologies:** CSS, HTML, Markdown, Android Studio, Node.js, MySQL, Git
+
 **Frameworks and Libraries:** jQuery, Angular.js, React, HighCharts
 
 ## **Education** 

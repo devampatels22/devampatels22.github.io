@@ -80,5 +80,5 @@ pateld6@myumanitoba.ca
 
 #### **References**
 
-- Subway @ Arborg MB Ph:204 376 2565
+- Subway @ 204 376 2565
 - Home Depot @ 204 928 7110
